@@ -1,1 +1,1 @@
-# AgriVerse---Ideathon_TCET
+# AgriVerse_Ideathon_TCET
